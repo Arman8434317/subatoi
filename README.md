@@ -1,12 +1,12 @@
 Snapshot of my life
 ---
 
-:octocat: GitHub
+:octocat:⌨️ GitHub
 
 🎮👴 Retro games
 
-🎸 Guitars
+🎸🎶 Guitars
 
-🖖🏼 Trek
+🖖🏼🌌 Trek
 
-🏠 Redesigning our home
+🏡🖌 Redesigning our home
