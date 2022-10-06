@@ -1,7 +1,9 @@
 Snapshot of my life
 ---
 
-:github GitHub
+:octocat: GitHub
+
+🎮👴 : Retro games
 
 🎸 Guitars
 
