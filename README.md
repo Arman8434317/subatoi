@@ -1,7 +1,7 @@
 Snapshot of my life
 ---
 
-:github: GitHub
+:github GitHub
 
 🎸 Guitars
 
