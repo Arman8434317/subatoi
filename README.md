@@ -5,4 +5,4 @@ About me
 
 🖖🏼 Trek
 
-🏠 Building our home
+🏠 Redesigning our home
