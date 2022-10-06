@@ -1,4 +1,6 @@
-🎸 About me
+About me
 ---
 
-Senior Technical Writer @github. 
+🎸 Guitars
+🖖🏼 Trek
+🏠 Building our home
