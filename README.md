@@ -1,5 +1,7 @@
-About me
+Snapshot of my life
 ---
+
+:github: GitHub
 
 🎸 Guitars
 
