@@ -3,7 +3,7 @@ Snapshot of my life
 
 :octocat: GitHub
 
-🎮👴 : Retro games
+🎮👴 Retro games
 
 🎸 Guitars
 
