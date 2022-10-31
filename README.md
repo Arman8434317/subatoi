@@ -5,8 +5,8 @@ Snapshot of my life
 
 🎮👴 Retro games
 
-🎸🎶 Guitars
+🎸🎶 Blues
 
-🖖🏼🌌 Trek
+🖖🏼🌌 Sci-fi/fantasy
 
 🏡🖌 Redesigning our home
