@@ -5,7 +5,7 @@ Snapshot of my life
 
 🎮👴 Retro games
 
-🎸🎶 Blues
+🎸🎶 Blues guitar (listening, playing)
 
 🖖🏼🌌 Sci-fi/fantasy
 
