@@ -1,12 +1,1 @@
-Snapshot of my life
----
-
-:octocat:⌨️ GitHub
-
-🎮👴 Retro games
-
-🎸🎶 Blues guitar (listening, playing)
-
-🖖🏼🌌 Sci-fi/fantasy
-
-🏡🖌 Redesigning our home
+👋 I'm Ben, a technical writer at GitHub :octocat:.
